@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @romanthepilot
+- 👀 I’m interested in hockey, wars
+- 🌱 I’m currently learning more about coding
+- 💞️ I’m looking to collaborate on: ummm, some projects
+- 📫 How to reach me: Discord: Comrade Roman A.#6079 Twitter: (Soon to be BACK!:p): @AlerniteD
